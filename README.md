@@ -15,3 +15,6 @@ cara penggunaan aplikasi
 ![image](https://user-images.githubusercontent.com/9096711/137220841-62ec6e47-b078-4f40-94b1-4b7e9ae3184b.png)
 ![image](https://user-images.githubusercontent.com/9096711/137220911-fedcb70f-8096-4ce6-96b9-d9d9fdf18915.png)
 ![image](https://user-images.githubusercontent.com/9096711/137220953-7c2d8773-0853-4d42-b337-2aab61c99acd.png)
+
+
+Info lengkap : 081311212216 (Arief)
